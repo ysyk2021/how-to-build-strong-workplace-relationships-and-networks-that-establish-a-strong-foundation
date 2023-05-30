@@ -1,0 +1,15 @@
+{
+    "name": "how-to-build-strong-workplace-relationships-and-networks-that-establish-a-strong-foundation-for-collaboration-and-growth",
+    "version": "1.0.0",
+    "description": "",
+    "main": "index.js",
+    "scripts": {
+        "test": "echo \"Error: no test specified\" && exit 1"
+    },
+    "keywords": [],
+    "author": "",
+    "license": "ISC",
+    "devDependencies": {
+        "honkit": "^4.0.7"
+    }
+}
