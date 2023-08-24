@@ -1,5 +1,3 @@
-Types of Networking and Collaboration Tools and Software
-===========================================================================================================================
 
 Technology has revolutionized the way we work and interact with others in the workplace. In this chapter, we will explore types of networking and collaboration tools and software, including social media platforms, collaboration tools, and virtual communication software.
 

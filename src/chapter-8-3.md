@@ -1,5 +1,3 @@
-Adjusting Workplace Relationship Programs Based on Feedback
-================================================================================================================
 
 Measuring workplace relationship success is essential for ensuring that programs designed to establish a strong foundation for collaboration and growth are effective. In this chapter, we will explore strategies for measuring workplace relationship success, including the importance of feedback and ways to adjust workplace relationship programs based on feedback.
 

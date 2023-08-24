@@ -1,5 +1,3 @@
-Chapter 6: Collaborating Across Teams and Departments
-=====================================================
 
 The Benefits of Collaborating Across Teams and Departments
 ----------------------------------------------------------

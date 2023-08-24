@@ -1,5 +1,3 @@
-The Impact of Workplace Relationships on Collaboration and Growth
-===================================================================================================================
 
 Workplace relationships have a significant impact on collaboration and growth in the workplace. In this chapter, we'll explore how workplace relationships can affect collaboration and growth.
 

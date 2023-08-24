@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Networking and Collaboration
-=================================================================
 
 In today's digital age, technology has revolutionized the way we work and communicate. In this chapter, we will explore how to leverage technology for networking and collaboration in the workplace.
 

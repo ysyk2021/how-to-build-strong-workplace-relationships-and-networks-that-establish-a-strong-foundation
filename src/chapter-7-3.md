@@ -1,5 +1,3 @@
-Handling Conflicts and Building Bridges
-===========================================================================================
 
 Creating a culture of trust and respect is essential to building strong workplace relationships and networks. In this chapter, we will explore how to handle conflicts and build bridges to promote trust and respect in the workplace.
 

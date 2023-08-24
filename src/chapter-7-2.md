@@ -1,5 +1,3 @@
-Strategies for Creating a Culture of Trust and Respect
-==========================================================================================================
 
 Creating a culture of trust and respect is essential to building strong workplace relationships and networks. In this chapter, we will explore strategies for creating a culture of trust and respect.
 

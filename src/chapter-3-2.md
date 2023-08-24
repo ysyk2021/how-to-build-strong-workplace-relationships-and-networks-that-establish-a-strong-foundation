@@ -1,5 +1,3 @@
-Techniques for Effective Communication and Active Listening
-=================================================================================================================
 
 Effective communication and active listening are essential to building positive workplace relationships. In this chapter, we will explore techniques for effective communication and active listening that can help individuals establish strong professional networks.
 

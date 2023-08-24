@@ -1,5 +1,3 @@
-Analyzing Team Performance and Engagement Data
-===================================================================================================
 
 Analyzing team performance and engagement data is a critical aspect of measuring workplace relationship success. In this chapter, we will explore how to effectively analyze team performance and engagement data, including methods for collecting and analyzing data, key performance indicators (KPIs), and best practices for interpreting and acting on data.
 

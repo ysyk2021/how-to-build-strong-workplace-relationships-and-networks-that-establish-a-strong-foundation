@@ -1,5 +1,3 @@
-Strategies for Building Positive Workplace Relationships
-==============================================================================================================
 
 Building positive workplace relationships is essential for establishing a strong foundation for collaboration and growth. In this chapter, we will explore strategies for building positive workplace relationships.
 

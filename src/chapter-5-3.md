@@ -1,5 +1,3 @@
-Offering Support and Celebrating Successes
-===========================================================================================
 
 Nurturing professional relationships is essential to building strong workplace relationships and networks. In this chapter, we will explore how to offer support and celebrate successes to promote strong professional relationships.
 

@@ -1,5 +1,3 @@
-Strategies for Maintaining and Strengthening Professional Relationships
-========================================================================================================================
 
 Nurturing professional relationships is essential to building strong workplace relationships and networks. In this chapter, we will explore strategies for maintaining and strengthening professional relationships.
 

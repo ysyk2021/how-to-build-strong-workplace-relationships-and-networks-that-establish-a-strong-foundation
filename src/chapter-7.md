@@ -1,5 +1,3 @@
-Chapter 7: Creating a Culture of Trust and Respect
-==================================================
 
 The Role of Trust and Respect in Strong Workplace Relationships and Networks
 ----------------------------------------------------------------------------

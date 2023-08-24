@@ -1,5 +1,3 @@
-Types of Workplace Relationships
-==================================================================================
 
 Workplace relationships are an important aspect of professional life. In this chapter, we'll explore the different types of workplace relationships that individuals may encounter.
 

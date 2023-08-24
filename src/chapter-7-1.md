@@ -1,5 +1,3 @@
-The Role of Trust and Respect in Strong Workplace Relationships and Networks
-================================================================================================================================
 
 Trust and respect are essential components of strong workplace relationships and networks. In this chapter, we'll explore the role of trust and respect in creating a positive and productive work environment.
 

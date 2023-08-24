@@ -1,5 +1,3 @@
-Definition of Workplace Relationships
-=======================================================================================
 
 Workplace relationships are the connections that individuals form with their colleagues and peers in the workplace. These relationships can take many forms, from professional to personal, and can have a significant impact on job satisfaction, motivation, and overall well-being.
 

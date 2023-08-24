@@ -1,5 +1,3 @@
-Chapter 5: Nurturing Professional Relationships
-===============================================
 
 Building strong professional relationships is essential for establishing a strong foundation for collaboration and growth. In this chapter, we will explore the importance of nurturing professional relationships and strategies for maintaining and strengthening them.
 

@@ -1,5 +1,3 @@
-Chapter 2: Understanding Workplace Relationships
-================================================
 
 Definition of Workplace Relationships
 -------------------------------------

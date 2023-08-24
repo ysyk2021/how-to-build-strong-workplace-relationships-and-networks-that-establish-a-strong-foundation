@@ -1,5 +1,3 @@
-Encouraging Empathy and Understanding
-===========================================================================================
 
 Building positive workplace relationships is essential to creating a supportive and productive work environment. In this chapter, we will explore how encouraging empathy and understanding can help build positive workplace relationships.
 

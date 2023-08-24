@@ -1,5 +1,3 @@
-Strategies for Promoting Cross-Functional Collaboration
-==============================================================================================================
 
 Collaborating across teams and departments is essential to promoting cross-functional collaboration, which can bring significant benefits to workplace relationships, team success, and organizational growth. In this chapter, we will explore strategies for promoting cross-functional collaboration, including establishing clear goals, building relationships, creating a culture of openness, and leveraging technology.
 

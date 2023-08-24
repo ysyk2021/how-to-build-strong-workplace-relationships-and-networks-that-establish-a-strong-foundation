@@ -1,5 +1,3 @@
-Chapter 3: Building Positive Workplace Relationships
-====================================================
 
 Strategies for Building Positive Workplace Relationships
 --------------------------------------------------------

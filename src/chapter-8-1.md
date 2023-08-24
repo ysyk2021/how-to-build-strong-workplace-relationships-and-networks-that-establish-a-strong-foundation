@@ -1,5 +1,3 @@
-Methods for Measuring Workplace Relationship Success
-=========================================================================================================
 
 Measuring workplace relationship success is essential to understanding the effectiveness of workplace relationships and networks. In this chapter, we will explore methods for measuring workplace relationship success, including engagement surveys, feedback sessions, and performance metrics.
 
