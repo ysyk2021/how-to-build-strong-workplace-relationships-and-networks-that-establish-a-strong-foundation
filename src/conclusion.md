@@ -1,5 +1,4 @@
 
-
 Building strong workplace relationships and networks is essential for establishing a strong foundation for collaboration and growth. In this book, we have explored the definition of workplace relationships, strategies for building positive workplace relationships, techniques for collaborating across teams and departments, and tips for developing a strong workplace network. We have also discussed how to navigate difficult workplace relationships and overcome challenges that may arise.
 
 Summary of Key Points
