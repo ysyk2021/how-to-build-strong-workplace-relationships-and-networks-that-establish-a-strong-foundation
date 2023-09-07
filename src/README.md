@@ -8,3 +8,7 @@ Throughout the book, we will use case studies to illustrate successful examples 
 By the end of this book, readers will have a comprehensive understanding of the importance of building positive workplace relationships and networks, as well as practical tools and resources for establishing strong connections with colleagues and contacts. Whether you are an employee or a manager, this book will provide actionable strategies for creating a more collaborative and successful work environment.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
